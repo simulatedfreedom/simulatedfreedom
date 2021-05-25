@@ -9,4 +9,4 @@ simulatedfreedom/simulatedfreedom is a ✨ special ✨ repository because its `R
 You can click the Preview link to take a look at your changes.
 --->
 
-Also, I'm just one person, so I can only one-person so much.
+Sharing legible code is simple and provides the best end-results. However, the best way to share code is to simply share it by showing it to the world.
