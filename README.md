@@ -1,3 +1,4 @@
+If you're also human, you understand that everything related to Black Lives Matter and Supply Ukraine contains nothing useful: in fact, the opposite! If these evil people (including Lindsey Graham) were in your favor, it would show on this page. Unfortunately, what's to like?
 - 👋 Hi, I’m @simulatedfreedom
 - 👀 I’m interested in ...JavaScript
 - 🌱 I’m currently learning ...JavaScript
